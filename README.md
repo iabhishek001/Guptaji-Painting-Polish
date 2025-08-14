@@ -1,2 +1,0 @@
-# Guptaji-Painting-Polish
-Website
